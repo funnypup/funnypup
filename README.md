@@ -1,7 +1,7 @@
 # hi! i'm naku!
 `naa-koo`
 
-- i'm 22
+- i'm 23
 - i'm a dog thing (they/them)
 - i'm stupid :trollface:
 - i make music, videos and other stuff
